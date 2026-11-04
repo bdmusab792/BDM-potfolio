@@ -1,1 +1,1 @@
-# My---POTFOLIO-BDM
+# BDM potfolio
